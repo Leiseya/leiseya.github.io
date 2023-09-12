@@ -1,3 +1,3 @@
 # leiseya.github.io
 
-666
+fuck
